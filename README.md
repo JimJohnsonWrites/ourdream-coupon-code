@@ -1,6 +1,7 @@
 # Ourdream Coupon Code
 
-Get the 75% discount on your first OurDream subscription here: [Claim Discount]([https://hushverified.com/discounts/ourdream-ai/](https://hushverified.com/start/ourdream/)
+Get the 75% discount on your first OurDream subscription here:
+ [Claim Discount](https://hushverified.com/start/ourdream/).
 
 Some coupon websites advertise discounts of 75%, 90%, or more. Treat these claims carefully. Certain offers use a supposed $39.99 “regular price” to calculate an exaggerated saving, even though the listed Premium monthly price is $19.99.
 
